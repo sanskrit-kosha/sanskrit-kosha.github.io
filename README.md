@@ -1,1 +1,0 @@
-# sanskrit-kosha.github.io
